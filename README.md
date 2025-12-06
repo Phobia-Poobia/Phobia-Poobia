@@ -8,3 +8,4 @@ Umm.. @parasite-mine is ok ig.. hi..... hi.. lego guy..
 Umm.. @nolivoidstar is super duper scary pls watch out guys.. its so scary..
 
 
+@theultimatekohamster iis a biig FFFAT gogooner bbro.. kkill them pplease they ssuck ballssz!!
