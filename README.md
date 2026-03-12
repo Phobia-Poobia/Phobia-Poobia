@@ -20,4 +20,4 @@ Refer to me as the character / person im cosplaying as or my name, Phobia!
 
 Occasionally, if I'm upset or just not emotionally motivated, I will most likely state that I am non-verbal in my name, this does not mean I dislike you in anyway, it's probably just me being a baby about something irl .
 
-![Image Alt](https://tenor.com/view/elliot-elliot-forsaken-work-at-a-pizza-place-forsaken-forsaken-roblox-gif-9216584767854067451)
+![Image Alt](https://media.discordapp.net/attachments/aww.pngex=69b440e7&is=69b2ef67&hm=280401d5885b6e6e92ff1b77c76fb8d6d1916ba3b77343a6c40a9f218f52b03d&=&format=webp&quality=lossless)
